@@ -1,0 +1,1 @@
+Yo, je tente de refaire l'exo du jour sans regarder les consignes mais du coup je ne sais plus le texte qu'il y avait à la base, c'est une longue phrase
